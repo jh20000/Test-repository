@@ -7,3 +7,5 @@ HI🖐️ I'm JooHyoung✌️
 I'm love vs, Git😊  
 Nice to meet U💟
 Have a nice day🤜
+
+# 특기도 추가했어요
